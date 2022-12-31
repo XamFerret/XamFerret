@@ -7,5 +7,5 @@ Living in Berlin, worked as a graphic designer for 8 years, just finished the Le
 
 
 
-⚡ Fun fact: The name “ferret” is derived from the Latin word furittus, meaning “little thief.” This name likely refers to the common ferret habit of secreting away small items.
+⚡ Fun fact: The name “ferret” is derived from the Latin word furittus, meaning “little thief.” This name likely refers to the common ferret habit of secreting away small items. Like my pens and hairclips.
 
